@@ -1,1 +1,2 @@
-Hiking makes me sad
+
+Dancing makes me happy =]
